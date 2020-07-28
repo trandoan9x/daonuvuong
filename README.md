@@ -1,2 +1,0 @@
-# daonuvuong
-ĐÀO NỮ VƯƠNG
